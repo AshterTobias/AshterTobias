@@ -1,7 +1,7 @@
 - 👋 haii!! :3 my name is Ashter!
 - 👀 I’m interested in ice skating, mlp, TOH, MHA, FNaF, and lots more!!!
-- 🌱 I’m currently learning about systems, i'm not that educated about them so im trying my best!!
-- 💞️ I’m looking to collaborate on tiktok!! in the future, im currently not motivated enough but my goal is to be a famous pt creator!
+- 🌱 I’m currently learning about systems, i'm not that educated about them but i'm trying my best!!
+- 💞️ I’m looking to collaborate on tiktok!! in the future! im currently not motivated enough, but my goal is to be a famous pt creator!
 - 📫 How to reach me!! my discord is: encore_ashter, feel free to add me anytime!!!
 - 😄 Pronouns: he/they
 - ⚡ Fun fact: i like pretzel sticks :3
